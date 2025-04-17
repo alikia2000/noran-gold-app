@@ -1,0 +1,1 @@
+# noran-gold-app
